@@ -1,2 +1,2 @@
 # DomainKadeh
-https://domainkade.com'
+https://domainkade.com
