@@ -1,5 +1,5 @@
 # DomainKadeh
-https://domainkade.com
+https://domainkadeh.com
 https://hoshiland.com
 https://yaransp.com
 https://matinbeigi.ir
